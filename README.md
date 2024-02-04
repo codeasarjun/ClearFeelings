@@ -9,4 +9,9 @@ Master's in Computer Applications 🎓 | Published IEEE Researcher 📚 | Java &
 
 📈 Transforming Ideas into Code | Building Intelligent Solutions 🛠️ | GitHub Explorer 🚀
 
-Let's collaborate and innovate in the world of Artificial Intelligence! 🤝✨ #CodeDreams #AIInnovator #ResearcherAtHeart
+Let's collaborate and innovate in the world of Artificial Intelligence! 
+
+🤝✨ #CodeAdventurer #AIExplorer #ResearcherAtHeart #NLPWizard
+
+✨ #AIExplorer #CodeAdventurer #NLPWizard #TechInnovator
+
